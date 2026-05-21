@@ -1,1 +1,1 @@
-# Child-Safety-Policy
+MühGangChat has a zero-tolerance policy against Child Sexual Abuse Material (CSAM) and the sexual exploitation of children. Any user found sharing, promoting, or engaging in such activities will be permanently banned immediately, and the relevant content/user information will be reported to the appropriate law enforcement authorities.
